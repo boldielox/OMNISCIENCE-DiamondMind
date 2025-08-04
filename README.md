@@ -1,1 +1,0 @@
-# OMNISCIENCE-DiamondMind
